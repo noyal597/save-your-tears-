@@ -12,3 +12,10 @@ I made you think that I would always stay
 I said some things that I should never say
 Yeah, I broke your heart like someone did to mine
 And now you won't love me for a second time
+I don't know why I run away, oh, girl
+Said, I make you cry when I run away
+Girl, take me back 'cause I wanna stay
+Save your tears for another
+I realize that I'm much too late
+And you deserve someone better
+#weekend
